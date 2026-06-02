@@ -1,4 +1,4 @@
-# 
+# Elite Figma tools for Mac OS | Premium Figma tools for PC Windows. Featuring frequency-separation and gradient-tool — optimized for maximum performance on every platform.
 
 
 
